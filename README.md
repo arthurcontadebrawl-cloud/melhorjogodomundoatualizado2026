@@ -1,0 +1,1 @@
+# melhorjogodomundoatualizado2026
